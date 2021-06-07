@@ -1,6 +1,6 @@
 ## Hi, I'm Nathalie PHOLSENA
 
-### Chargé de test logiciel
+### Testeur logiciel
 
 #### Utilisations des outils et Compétences informatiques
 
