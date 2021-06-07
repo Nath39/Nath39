@@ -21,35 +21,35 @@ _Juin 2018 – Sept. 2020_
 
 **Commerciale interne chez James WALKER FR (69)**
 
-• Administration des ventes Export & France (suivi des offres et
+- Administration des ventes Export & France (suivi des offres et
 commandes)
-• Consultation auprès des usines et partenaires (prix, délais, produits et
+- Consultation auprès des usines et partenaires (prix, délais, produits et
 services)
-• Traitement des litiges et gestion des réclamations
-• Mise à jour et suivi des fichiers clients et prospects
-• Gestion de la facturation
-• Amélioration du process existant
-• Rédaction des cahiers des charges et besoins clients
-• Animation des réunions de service et reporting.
+- Traitement des litiges et gestion des réclamations
+- Mise à jour et suivi des fichiers clients et prospects
+- Gestion de la facturation
+- Amélioration du process existant
+- Rédaction des cahiers des charges et besoins clients
+- Animation des réunions de service et reporting.
 
 _Avril 2016 – Mai 2018_
 
 **Assistante commercial export chez PYRAGRIC industrie (69)**
 
- • Analyse des demandes clients.
- • Gestion le traitement administratif et commercial des demandes.
- • Coordination des différentes actions avec les services internes
- • Suivi de la facturation client et interne (notes de crédit/avoirs)
- • Traitement les réclamations/litiges clients
+- Analyse des demandes clients.
+- Gestion le traitement administratif et commercial des demandes.
+- Coordination des différentes actions avec les services internes
+- Suivi de la facturation client et interne (notes de crédit/avoirs)
+- Traitement les réclamations/litiges clients
 
 _Sept. 2013 – Juin 2015_
 
 **Assistante manager chez Air Liquide (94) en alternance**
 
-• Gestion des tâches administratives, comptables et de secrétariat
-• Liaison entre les différents services de l'entreprise
-• Mise à jour des dossiers clients
-• Gestion des plannings
+- Gestion des tâches administratives, comptables et de secrétariat
+- Liaison entre les différents services de l'entreprise
+- Mise à jour des dossiers clients
+- Gestion des plannings
 
 _Jan. 2016 – Mai 2016_
 
